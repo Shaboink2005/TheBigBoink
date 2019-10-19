@@ -1,2 +1,2 @@
 # TheBigBoink
-We like to Shaboink people.
+We like to shaboink people.
